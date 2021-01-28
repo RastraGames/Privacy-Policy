@@ -1,4 +1,4 @@
-# Slappy-Fly-Hard-Pixel-2P-Game-Privacy-Policy
+# Slappy Fly - Hard Pixel 2P Game Privacy Policy
 **Privacy Policy**
 
 Gamburg built the Slappy Fly - Hard Pixel 2P Game app as an Ad Supported app. This SERVICE is provided by Gamburg at no cost and is intended for use as is.
